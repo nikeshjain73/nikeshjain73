@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **jnikesh050@gmail.com**
 
-- ⚡ Fun fact **I think i can compete anythings**
+- ⚡ Fun fact **I think i can compete anything**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
